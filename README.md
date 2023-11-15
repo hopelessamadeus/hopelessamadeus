@@ -1,5 +1,5 @@
  🎸  Theo/Amadeus ♪ ☆
          he/him 🍒 minor . .
-(  https://en.pronouns.page/@The0__wriites 🍁  )
+( https://linktr.ee/unbearabletheo 🍁  )
 
 @eros_thehopeless ☆ discord !
